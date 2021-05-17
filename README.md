@@ -1,1 +1,1 @@
-https://sergeyzlotnik.github.io/fuck_you/
+https://sergeyzlotnik.github.io/omg/
